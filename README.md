@@ -20,6 +20,7 @@ I'm a multidisciplinary creatie specializing in:
 A short description on the murder scene appearance of a crime against humanity.
 3. PHOTOGRAPHY AND POSTER DESIGNS
  https://drive.google.com/drive/folders/1fmVr88MC-EkTTrs1ljOAE8oYHrbN87Sj?usp=drive_link
+ Poster designs: https://drive.google.com/drive/folders/1Nn2S0L88uaRHhXsigyNlb-dzBOaZFwEC?usp=drive_link
 4. VIDEO PRODUCTION WORK
    [maru complete episode.pdf](https://github.com/user-attachments/files/21575966/maru.complete.episode.pdf)
 [MARU episode 1 and 2.pdf](https://github.com/user-attachments/files/21575964/MARU.episode.1.and.2.pdf)
